@@ -2,5 +2,5 @@
 
 Hi world!
 
-Lau here, I am enjoyinh this project (its great fun!).
-I am enjoyinh watching bones the tv show.
+Lau here, I am enjoying this project (its great fun!).
+I am enjoying watching bones the tv show.
